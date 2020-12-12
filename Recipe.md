@@ -11,4 +11,4 @@
 1. Add Kashmiri red chilli powder, coriander powder, turmeric powder, garam masala powder, salt and a cup of water and cook for 1-2 minutes.
 1. Add paneer, honey, lemon juice, cardamom powder, kewra essence and a cup of water and cook on low heat for 5-6 minutes.
 1. Adjust water according to your preference Add fresh cream and cook for a minute.
-1. that's it, your shahi paneer is ready
+1. that's it, your shahi paneer is ready.
